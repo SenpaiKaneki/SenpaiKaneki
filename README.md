@@ -1,5 +1,5 @@
 ### Wassup
-🔭 I’m currently working on nothing
+- 🔭 I’m currently working on nothing
 - 🌱 I’m currently want to learn Python
 - 🤔 I’m looking for help with nothing :)
 - 📫 How to reach me: _Senpai_Kaneki#6969
