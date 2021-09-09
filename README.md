@@ -1,4 +1,4 @@
-### Wassup
+### Wassup❤️
 - 🔭 I’m currently working on nothing
 - 🌱 I’m currently want to learn Python
 - 🤔 I’m looking for help with nothing :)
