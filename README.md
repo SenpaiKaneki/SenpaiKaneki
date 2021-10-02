@@ -1,6 +1,6 @@
 ### Wassup❤️
 - 🔭 I’m currently working on nothing
-- 🌱 I currently want to learning Python
+- 🌱 I currently learning Python
 - 🤔 I’m looking for help with nothing :)
 - 📫 How to reach me: _Senpai_Kaneki#6969
 - 😄 Pronouns: Use what u want idc
