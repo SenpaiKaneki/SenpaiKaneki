@@ -1,11 +1,10 @@
 ### Wassup❤️
 - 🔭 I’m currently working on nothing
-- 🌱 I currently learning Python
+- 🌱 I currently learning nothing
 - 🤔 I’m looking for help with nothing :)
 - 📫 How to reach me: _Senpai_Kaneki#6969
 - 😄 Pronouns: Use what u want idc
 - ⚡ Fun fact: Im dutch
-- 💬 Ask me about titties
 <!--
 **SenpaiKaneki/SenpaiKaneki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
